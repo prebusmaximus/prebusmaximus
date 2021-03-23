@@ -8,3 +8,5 @@ As I'm currently freelancing a lot my spare time I dedicate to software projects
 - 🌱 I’m currently learning to behave.. 🤣
 - 👯 I’m looking to collaborate on small to medium size projects that challenge my skills.
 - ⚡ Fun fact: I have too many hours in PUBG
+
+<a href="https://www.buymeacoffee.com/prebusmaximus" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" alt="Buy Me A Coffee" width="217" ></a>
